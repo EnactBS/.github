@@ -11,7 +11,7 @@
 > Bangladesh is a developing country with huge upcoming industrial revolution. Existing conglomerates are diversifying/ intend to diversify business which opens huge opportunity of providing optimized industrial solutions.
 
 
-
+![62419375_308976643313066_9164390779987165184_n](https://github.com/EnactBS/.github/assets/73751602/73c84223-6767-4a85-b480-1a6b73d0b34f)
 
 <!--
 
